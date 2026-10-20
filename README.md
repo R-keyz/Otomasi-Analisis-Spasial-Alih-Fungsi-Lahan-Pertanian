@@ -1,0 +1,1 @@
+# Otomasi-Analisis-Spasial-Alih-Fungsi-Lahan-Pertanian
